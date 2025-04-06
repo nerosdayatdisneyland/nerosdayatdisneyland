@@ -8,13 +8,15 @@
 
 ☆ minor
 
-☆ i really like NDAD. ^_^
+☆ im a big fan of lauren bousfields work.
 
-☆ other interests include : homestuck, roblox, object shows, lot/endzone, alongside other stuff . .
+☆ i have alot of other interests, mainly roblox and object shows.
 
-☆ i usually just block freely. 
+☆ i block freely. 
 
-> TY 4 READING
+> ty 4 reading
+
+( might remake this soon. )
 
 ![Tumblr_l_203818570821206](https://github.com/user-attachments/assets/64488c1b-a60e-4f8d-8874-5c87fa3375a4)
 
